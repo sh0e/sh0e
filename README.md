@@ -24,4 +24,4 @@ Despite my *very* unique talents I behold, I like to do a lot of Internal comput
 
 Feel free to DM me on Discord with any questions. **- shoe#1327**
 
-<img src="https://github.com/sh0e/shoe/blob/master/7046a54bc78e307fa5e7d9b2efeb3415.png?raw=true" width="500"></img>
+<img src="https://github.com/sh0e/sh0e/blob/master/7046a54bc78e307fa5e7d9b2efeb3415.png?raw=true" width="500"></img>
